@@ -28,10 +28,14 @@ There are bus stops at the bottom on the hill that will take you into the city c
 I haven’t included directions for these places but we have leaflets for lots of them in the folder. Most can be easily googled! We have listed them in relation to travelling distance (driving) but in peak season don’t hold us to this!  
 There are so many more places than this – these are just a few ideas.
 I have listed some places that are suited to youngish children separately – that’s not to say everyone wouldn’t enjoy them!
-Walking 10-15 minutes
+
+### Walking 10-15 minutes
 Central Park – at the bottom of the hill from our house (you can see it from the house). Great for a walk close by.
+
 Plymouth Life Centre – large building you can see from the house in the park. Olympic pool, children’s pool, diving pool, excellent climbing wall, gym etc.
+
 Hyde Park corner – selection of boutique shops and a few cafes. Down the hill and turn left onto the busier road. Follow that down.
+
 Mutley Plain – bars, cafes and shops – some smaller supermarkets (and a lot of estate agents!). Very popular student area. Our favourite pub ‘The Hyde Park’ which sits on the roundabout at the start of Mutley Plain does great and cheapish pub food. 
 
 ##### For kids
